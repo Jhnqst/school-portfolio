@@ -1,1 +1,1 @@
-# school-portfolio
+The OCM logo presents a bold and modern typographic design that reflects strength, innovation, and professionalism. Its heavy serif lettering communicates a strong foundation, while the minimalist color scheme gives it a clean and timeless appearance. The stylized curves within the letters suggest creativity and adaptability — key qualities in the tech industry. The inclusion of “TECH INDUSTRY” and “SINCE 2025” positions the brand as a forward-thinking entity ready to shape the future of smart technology and digital solutions.
